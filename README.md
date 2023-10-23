@@ -4,7 +4,7 @@ A long winded epic about a very ghostly abode
 Your team of writers have been assigned a spectacularly spooky task - to write a Halloween special for the EAYL Academy!
 
 
-<h2>Malicious Melinda your repository host has started your story....</h2>
+<h2>Malicious Melinda, your repository host has started your story....</h2>
 <h1>The Haunted Lair </h1>
 
 In the heart of a desolate, overgrown forest stood a house shrouded in a perpetual shroud of fog and mystery. Locals whispered tales of the cursed mansion, but none dared approach it after sunset.
