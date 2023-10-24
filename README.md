@@ -7,6 +7,7 @@ Your team of writers have been assigned a spectacularly spooky task - to write a
 <h2>Malicious Melinda, your repository host has started your story....</h2>
 <h1>The Haunted Lair </h1>
 
+![picture of haunted hauntedHouse](https://www.junkhunters.co.uk/wp-content/uploads/2014/01/haunted-house.jpg)
 In the heart of a desolate, overgrown forest stood a house shrouded in a perpetual shroud of fog and mystery. Locals whispered tales of the cursed mansion, but none dared approach it after sunset.
 
 On a moonless night, Sarah, an adventurous spirit, arrived at the haunted house with nothing but a dim flashlight. She cautiously stepped onto the creaking porch, the wood moaning like a tortured soul. The air grew icy, and shadows danced ominously in every corner.
