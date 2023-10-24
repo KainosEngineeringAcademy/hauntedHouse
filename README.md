@@ -22,3 +22,5 @@ In a forgotten chamber, a child's laughter echoed, despite the house's abandonme
 With every ounce of strength, she managed to flee the cursed mansion, leaving behind the haunted horrors that lurked within. As she stumbled back into the moonlight, the house seemed to leer at her with malevolence, waiting for the next brave soul to dare its unholy embrace.
 
 The cursed mansion remained, a macabre sentinel in the forest, its secrets locked away for eternity, and its malevolence destined to haunt the hearts of those who dared to approach its foreboding walls.
+
+Sarah was left in the dark, gloomy forest. The wind whistled between the branches and shivers ran down her spine. She had escaped the mansion but the darkness was still lingering in the atmosphere. Sarah's head darted back and forth as the scanned the area surrounding her. She needed to get home, and quick. Suddenly a light flashed between the barks of the trees, "Was someone else here?", Sarah wondered, maybe she wasn't alone. Maybe somebody could help her? Or perhaps somebody was after her...
