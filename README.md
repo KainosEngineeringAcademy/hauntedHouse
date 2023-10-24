@@ -22,3 +22,7 @@ In a forgotten chamber, a child's laughter echoed, despite the house's abandonme
 With every ounce of strength, she managed to flee the cursed mansion, leaving behind the haunted horrors that lurked within. As she stumbled back into the moonlight, the house seemed to leer at her with malevolence, waiting for the next brave soul to dare its unholy embrace.
 
 The cursed mansion remained, a macabre sentinel in the forest, its secrets locked away for eternity, and its malevolence destined to haunt the hearts of those who dared to approach its foreboding walls.
+
+Years later, a small memorial was erected in the heart of the forest, commemorating the mansion's troubled past and celebrating the triumph of compassion over darkness. Visitors from far and wide came to pay their respects, to learn from the lessons of the past and to find solace in the newfound peace that enveloped the once-cursed grounds.
+
+The cursed mansion, now a symbol of hope and redemption, stood as a testament to the power of forgiveness and the transformative nature of human kindness. Its story echoed through generations, reminding all who heard it that even the most haunted of places could find salvation in the light of understanding and empathy.
