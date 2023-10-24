@@ -22,3 +22,5 @@ In a forgotten chamber, a child's laughter echoed, despite the house's abandonme
 With every ounce of strength, she managed to flee the cursed mansion, leaving behind the haunted horrors that lurked within. As she stumbled back into the moonlight, the house seemed to leer at her with malevolence, waiting for the next brave soul to dare its unholy embrace.
 
 The cursed mansion remained, a macabre sentinel in the forest, its secrets locked away for eternity, and its malevolence destined to haunt the hearts of those who dared to approach its foreboding walls.
+
+As she left the mansion not a word was heard no cars drove by not a person to be seen. When she arrived home her mum, dad and brother where not in which was strange it was late and her parents where never ones for late nights shurly they would have told here if they where going to be out. Never the less she went to bed for the night. The next day she woke up to the house still desseted she went on her phone the wifi was down and she had no signal what was happening
