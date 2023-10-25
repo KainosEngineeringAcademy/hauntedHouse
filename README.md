@@ -11,7 +11,7 @@ Your team of writers have been assigned a spectacularly spooky task - to write a
 
 In the heart of a desolate, overgrown forest stood a house shrouded in a perpetual shroud of fog and mystery. Locals whispered tales of the cursed mansion, but none dared approach it after sunset.
 
-On a moonless night, Sarah, an adventurous spirit, arrived at the haunted house with nothing but a dim flashlight. She cautiously stepped onto the creaking porch, the wood moaning like a tortured soul. The air grew icy, and shadows danced ominously in every corner.
+She decided she needed to investigate. Wondering through the dark gloomy forest Sarah searched and searched to find the mansion.  The wind whistled between the branches and shivers ran down her spine. She had escaped the mansion but the same darkness was still lingering in the atmosphere. Sarah's head darted back and forth as the scanned the area surrounding her. She needed to find somebody quick. Suddenly a light flashed between the barks of the trees, "Was someone else here?", Sarah wondered, maybe she wasn't alone. Maybe somebody could help her? Or perhaps somebody was after her...On a moonless night, Sarah, an adventurous spirit, arrived at the haunted house with nothing but a dim flashlight. She cautiously stepped onto the creaking porch, the wood moaning like a tortured soul. The air grew icy, and shadows danced ominously in every corner.
 
 As Sarah ventured inside, the silence was broken by faint whispers, and spectral figures flitted through the darkness. A cold hand seemed to brush her shoulder, sending shivers down her spine. She continued down the decrepit hallway, guided by a faint, flickering light.
 
@@ -26,6 +26,7 @@ With every ounce of strength, she managed to flee the cursed mansion, leaving be
 The cursed mansion remained, a macabre sentinel in the forest, its secrets locked away for eternity, and its malevolence destined to haunt the hearts of those who dared to approach its foreboding walls.
 
 As she left the mansion not a word was heard no cars drove by not a person to be seen. When she arrived home her mum, dad and brother where not in which was strange it was late and her parents where never ones for late nights shurly they would have told here if they where going to be out. Never the less she went to bed for the night. The next day she woke up to the house still desseted she went on her phone the wifi was down and she had no signal what was happening.
+
 
 As Sarah stumbled out of the cursed mansion, gasping for breath and drenched in cold sweat, she collapsed onto the porch, the ancient wood groaning beneath her weight. The forest beyond seemed to sigh in relief, as if it, too, had held its breath during her harrowing ordeal.
 
@@ -46,3 +47,4 @@ Over time, the forest around the mansion flourished, and the fog and darkness th
 As the years passed, the cursed mansion's legends transformed into tales of redemption, and it became a place of healing and remembrance. The house, once a source of terror, now stood as a testament to the power of compassion and the human spirit's ability to confront even the darkest of mysteries.
 
 The cursed mansion, once a foreboding sentinel in the forest, now rested in tranquility, its secrets finally laid to rest, and its malevolence banished to the annals of history.
+
