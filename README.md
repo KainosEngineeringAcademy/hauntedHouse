@@ -42,9 +42,12 @@ With each revelation, Sarah felt a growing connection to the spirits, a sense of
 
 Through a combination of séances, rituals, and heartfelt pleas, Sarah and the investigators helped the spirits find closure, allowing them to move on to the afterlife. As the last ghostly figure disappeared from the cursed mansion, a profound sense of peace descended upon the once-dreaded house.
 
+Sarah's role in the mansion's transformation didn't go unnoticed. The townspeople celebrated her as a hero, a beacon of light in the darkness that had enveloped their community for so long. Her journey became a symbol of courage and compassion, inspiring others to confront their own fears and confront the shadows that haunted their lives.
+
+With the mansion's curse lifted, Sarah found a sense of purpose she had long been missing. She dedicated herself to helping others in need, becoming a pillar of support for those struggling with their own ghosts and inner demons. Her experience with the haunted mansion had transformed her, instilling in her a deep understanding of the human spirit's resilience and capacity for healing.
+
 Over time, the forest around the mansion flourished, and the fog and darkness that had shrouded it lifted. The locals who once feared the house now regarded it with a sense of somber respect. Sarah's journey had not only liberated the tormented spirits but also redeemed the mansion itself.
 
 As the years passed, the cursed mansion's legends transformed into tales of redemption, and it became a place of healing and remembrance. The house, once a source of terror, now stood as a testament to the power of compassion and the human spirit's ability to confront even the darkest of mysteries.
 
 The cursed mansion, once a foreboding sentinel in the forest, now rested in tranquility, its secrets finally laid to rest, and its malevolence banished to the annals of history.
-
