@@ -27,6 +27,9 @@ The cursed mansion remained, a macabre sentinel in the forest, its secrets locke
 
 As she left the mansion not a word was heard no cars drove by not a person to be seen. When she arrived home her mum, dad and brother where not in which was strange it was late and her parents where never ones for late nights shurly they would have told here if they where going to be out. Never the less she went to bed for the night. The next day she woke up to the house still desseted she went on her phone the wifi was down and she had no signal what was happening.
 
+She decided she needed to investigate. Wondering through the dark gloomy forest Sarah searched and searched to find the mansion.  The wind whistled between the branches and shivers ran down her spine. She had escaped the mansion but the same darkness was still lingering in the atmosphere. Sarah's head darted back and forth as the scanned the area surrounding her. She needed to find somebody quick. Suddenly a light flashed between the barks of the trees, "Was someone else here?", Sarah wondered, maybe she wasn't alone. Maybe somebody could help her? Or perhaps somebody was after her...
+
+
 
 As Sarah stumbled out of the cursed mansion, gasping for breath and drenched in cold sweat, she collapsed onto the porch, the ancient wood groaning beneath her weight. The forest beyond seemed to sigh in relief, as if it, too, had held its breath during her harrowing ordeal.
 
@@ -41,7 +44,7 @@ Together, they combed every inch of the mansion, documenting their findings and 
 With each revelation, Sarah felt a growing connection to the spirits, a sense of empathy for their plight. She realized that they weren't malevolent by nature; they were trapped and seeking release from their eternal torment.
 
 Through a combination of séances, rituals, and heartfelt pleas, Sarah and the investigators helped the spirits find closure, allowing them to move on to the afterlife. As the last ghostly figure disappeared from the cursed mansion, a profound sense of peace descended upon the once-dreaded house.
-
+It was all a dream and she had woken up.
 Over time, the forest around the mansion flourished, and the fog and darkness that had shrouded it lifted. The locals who once feared the house now regarded it with a sense of somber respect. Sarah's journey had not only liberated the tormented spirits but also redeemed the mansion itself.
 
 As the years passed, the cursed mansion's legends transformed into tales of redemption, and it became a place of healing and remembrance. The house, once a source of terror, now stood as a testament to the power of compassion and the human spirit's ability to confront even the darkest of mysteries.
